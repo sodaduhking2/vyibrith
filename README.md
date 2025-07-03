@@ -11,3 +11,4 @@ yes
 
 # okay what it look like
 it look like this
+https://github.com/user-attachments/assets/7f874817-3cdf-4090-8823-fb21d8454ec4
