@@ -1,2 +1,13 @@
-# vyibrith
-a multitool that im gunna give up on probably idk it has a virus maker in it so ye
+# vyibrith multi tool
+
+:)
+
+## usage
+
+it can make viruses (thats sooo original totally real) it has guides for piracy and "other stuff" ;)
+
+# cool where can i download it
+yes
+
+# okay what it look like
+it look like this
